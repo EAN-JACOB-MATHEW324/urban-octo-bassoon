@@ -1,2 +1,2 @@
 # urban-octo-bassoon
-I post the things i am interested in 
+This is my repo, and i'm a ten year old. I post things that are basic and simple templates and things.  
